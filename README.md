@@ -1,1 +1,0 @@
-# Paradigmas2017a
